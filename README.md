@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @harshUmretiya
-- 👀 I’m interested in web dfesign,graphic design
+- 👀 I’m interested in web design,graphic design
 - 🌱 I’m currently learning B.C.A
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can contect me on my mobile mumber:8799046365 or my email address is:harshumretiya322@gmail.com
